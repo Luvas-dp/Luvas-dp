@@ -3,4 +3,4 @@
 ![](https://media1.tenor.com/m/rGtMJe3j5pwAAAAC/kbs1.gif).
 
 ---
-![](https://media1.tenor.com/m/uoj1vuhuhN8AAAAd/dog-elegante-business-dog.gif).
+![](https://media1.tenor.com/m/Z4EWWBBvQr8AAAAd/dog-handshake-ai.gif).
