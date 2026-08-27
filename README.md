@@ -4,3 +4,4 @@
 
 ---
 ![](https://media1.tenor.com/m/JRNJ7moJuzMAAAAC/dog-ai-handshake-golden.gif).
+![](https://media1.tenor.com/m/2Zw9RcU1mDEAAAAd/puppy-dog.gif).
