@@ -6,6 +6,5 @@
 ![](https://media1.tenor.com/m/rGtMJe3j5pwAAAAC/kbs1.gif).
 
 ---
-![](https://media1.tenor.com/m/JRNJ7moJuzMAAAAC/dog-ai-handshake-golden.gif).
-![](https://media1.tenor.com/m/2Zw9RcU1mDEAAAAd/puppy-dog.gif).
 ![](https://media1.tenor.com/m/GnT6WEh2xYkAAAAC/cat-showercap-slyonicz.gif).
+![](https://media1.tenor.com/m/2Zw9RcU1mDEAAAAd/puppy-dog.gif).
